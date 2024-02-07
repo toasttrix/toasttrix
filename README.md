@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @toasttrix or TOAST!
+- 👀 I’m interested in; making new friends, Pony Town, Genshin, OMORI, and more! (look at rentry form more :3)
+- 🌱 I’m currently learning; how to speak German, how to cook, and how to improve my art skills!
+- 💞️ I’m looking to collaborate on; art things (ex. drawings, animations, etc), 
+- 📫 How to reach me; talk to me on discord! toasttrix_ :3
+- 😄 Pronouns: he/they or he/him please!
+- ⚡ Fun fact: I love to draw n make friends!:3`
+- ⭐ If you wanna know more about me feel free to interact with me! Dont worry, I dont bite (most of the time..) 
